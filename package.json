@@ -1,0 +1,15 @@
+{
+    "name": "from-list-maker-to-winner-essential-techniques-for-achieving-your-goals-and-becoming-a-more-productive-you",
+    "version": "1.0.0",
+    "description": "",
+    "main": "index.js",
+    "scripts": {
+        "test": "echo \"Error: no test specified\" && exit 1"
+    },
+    "keywords": [],
+    "author": "",
+    "license": "ISC",
+    "devDependencies": {
+        "honkit": "^4.0.7"
+    }
+}
