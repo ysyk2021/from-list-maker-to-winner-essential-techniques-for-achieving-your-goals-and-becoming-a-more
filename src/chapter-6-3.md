@@ -1,5 +1,4 @@
-Chapter 5: Building Habits That Support Your Goals: Developing Routines That Align with Your Goals
-==================================================================================================
+# Developing Routines That Align with Your Goals
 
 In this chapter, we'll explore the importance of building habits that support your goals, including developing routines that align with your goals. We'll discuss techniques for creating a routine that supports productivity and goal achievement, as well as strategies for overcoming obstacles and maintaining consistency.
 

@@ -1,5 +1,4 @@
-Chapter 4: Overcoming Procrastination and Distractions: Techniques for Addressing Procrastination and Distractions
-==================================================================================================================
+# Techniques for Addressing Procrastination and Distractions
 
 Procrastination and distractions can be major obstacles to productivity and success. Here are some techniques for addressing procrastination and distractions:
 

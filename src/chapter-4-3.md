@@ -1,5 +1,4 @@
-Chapter 3: Time Management and Productivity: Developing Routines and Habits That Support Productivity
-=====================================================================================================
+# Developing Routines and Habits That Support Productivity
 
 Effective time management is crucial for productivity and achieving your goals. Here are some techniques for developing routines and habits that support productivity:
 

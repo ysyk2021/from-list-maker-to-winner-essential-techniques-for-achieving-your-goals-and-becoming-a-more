@@ -1,5 +1,4 @@
-Chapter 5: Building Habits That Support Your Goals: Recognizing the Importance of Building Habits That Support Your Goals
-=========================================================================================================================
+# Recognizing the Importance of Building Habits That Support Your Goals
 
 Building habits that support your goals is essential for achieving success and becoming a more productive you. Here are some reasons why building habits that support your goals is important:
 

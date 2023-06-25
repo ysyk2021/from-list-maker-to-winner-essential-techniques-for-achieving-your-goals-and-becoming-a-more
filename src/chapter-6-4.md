@@ -1,5 +1,4 @@
-Chapter 5: Building Habits That Support Your Goals: Building a Culture of Consistency and Accountability
-========================================================================================================
+# Building a Culture of Consistency and Accountability
 
 In this chapter, we'll explore the importance of building habits that support your goals. This includes creating a culture of consistency and accountability, establishing a routine, and tracking progress towards your goals.
 

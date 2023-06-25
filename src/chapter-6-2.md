@@ -1,5 +1,4 @@
-Chapter 5: Building Habits That Support Your Goals: Techniques for Building Lasting Habits
-==========================================================================================
+# Techniques for Building Lasting Habits
 
 Building habits that support your goals is essential for achieving success and becoming a more productive you. Here are some techniques for building lasting habits:
 

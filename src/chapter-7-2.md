@@ -1,5 +1,4 @@
-Chapter 6: Mindset and Self-Motivation: Techniques for Developing a Growth Mindset
-==================================================================================
+# Techniques for Developing a Growth Mindset
 
 Developing a growth mindset is essential for achieving your goals and becoming a more productive you. Here are some techniques for developing a growth mindset:
 

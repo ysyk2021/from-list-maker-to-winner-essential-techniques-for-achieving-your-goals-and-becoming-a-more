@@ -1,5 +1,4 @@
-Chapter 6: Mindset and Self-Motivation: The Importance of Mindset and Self-Motivation in Achieving Your Goals
-=============================================================================================================
+# The Importance of Mindset and Self-Motivation in Achieving Your Goals
 
 Mindset and self-motivation are essential for achieving your goals and becoming a more productive you. Here are some reasons why mindset and self-motivation are important:
 

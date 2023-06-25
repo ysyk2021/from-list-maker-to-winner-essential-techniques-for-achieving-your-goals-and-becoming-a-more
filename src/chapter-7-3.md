@@ -1,5 +1,4 @@
-Chapter 6: Mindset and Self-Motivation: Addressing Limiting Beliefs and Self-Sabotage
-=====================================================================================
+# Addressing Limiting Beliefs and Self-Sabotage
 
 Limiting beliefs and self-sabotage can be major obstacles to achieving your goals and becoming a more productive you. Here are some techniques for addressing limiting beliefs and self-sabotage:
 

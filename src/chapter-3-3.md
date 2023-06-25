@@ -1,5 +1,4 @@
-Chapter 2: Setting Effective Goals: Addressing Common Challenges in Goal-Setting
-================================================================================
+# Addressing Common Challenges in Goal-Setting
 
 In this chapter, we'll address common challenges that individuals may face when setting goals. We'll discuss techniques for overcoming these challenges and establishing effective goals.
 

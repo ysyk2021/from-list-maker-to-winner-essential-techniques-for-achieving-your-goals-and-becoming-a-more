@@ -1,5 +1,4 @@
-Chapter 1: Understanding the Power of Goal Setting: Overview of Goal Setting Theory
-===================================================================================
+# Overview of Goal Setting Theory
 
 In this chapter, we'll explore the theory behind goal setting and its importance in achieving success. Goal setting theory suggests that individuals who set specific, challenging goals are more likely to perform at a higher level and achieve greater success than those who do not set goals or set vague goals.
 

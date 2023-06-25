@@ -1,5 +1,4 @@
-Chapter 4: Overcoming Procrastination and Distractions: Building a Culture of Focus and Discipline
-==================================================================================================
+# Building a Culture of Focus and Discipline
 
 Building a culture of focus and discipline is crucial for overcoming procrastination and distractions. Here are some tips for building this culture:
 

@@ -1,5 +1,4 @@
-Chapter 2: Setting Effective Goals: Techniques for Setting SMART Goals
-======================================================================
+# Techniques for Setting SMART Goals
 
 In this chapter, we'll explore techniques for setting effective goals using the SMART framework. SMART stands for Specific, Measurable, Achievable, Relevant, and Time-bound, and is a powerful tool for establishing clear, actionable goals.
 

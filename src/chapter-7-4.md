@@ -1,5 +1,4 @@
-Chapter 6: Mindset and Self-Motivation: Building a Culture of Resilience and Persistence
-========================================================================================
+# Building a Culture of Resilience and Persistence
 
 In this chapter, we'll explore the importance of mindset and self-motivation in achieving your goals and becoming a more productive you. By cultivating a growth mindset and developing techniques for self-motivation, individuals can build a culture of resilience and persistence towards achieving their desired outcomes.
 
