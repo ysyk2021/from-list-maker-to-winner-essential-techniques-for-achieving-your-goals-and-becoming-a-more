@@ -1,4 +1,4 @@
-Conclusion: Recap of Key Takeaways
+Recap of Key Takeaways
 ==================================
 
 In this book, we've explored essential techniques for achieving your goals and becoming a more productive you. Here's a recap of some of the key takeaways:
