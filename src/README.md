@@ -10,5 +10,4 @@ Through this book, you'll learn how to identify your priorities, break down task
 
 With the help of this book, you'll be able to create a culture of efficiency and effectiveness in your personal and professional life, leading to greater satisfaction, fulfillment, and success. So let's get started on the journey from list maker to winner!
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
