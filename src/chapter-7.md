@@ -1,5 +1,3 @@
-Chapter 6: Mindset and Self-Motivation
-======================================
 
 The Importance of Mindset and Self-Motivation in Achieving Your Goals
 ---------------------------------------------------------------------

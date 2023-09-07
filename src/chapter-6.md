@@ -1,5 +1,3 @@
-Chapter 5: Building Habits that Support Your Goals
-==================================================
 
 Recognizing the Importance of Building Habits that Support Your Goals
 ---------------------------------------------------------------------

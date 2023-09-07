@@ -1,4 +1,3 @@
-# Chapter 7: Celebrating Success and Learning from Failure
 
 ## Recognizing the Importance of Celebrating Success and Learning from Failure in Achieving Your Goals
 

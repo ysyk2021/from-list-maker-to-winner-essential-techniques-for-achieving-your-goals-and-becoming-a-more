@@ -1,5 +1,3 @@
-Chapter 4: Overcoming Procrastination and Distractions
-======================================================
 
 The Importance of Overcoming Procrastination and Distractions in Achieving Your Goals
 -------------------------------------------------------------------------------------

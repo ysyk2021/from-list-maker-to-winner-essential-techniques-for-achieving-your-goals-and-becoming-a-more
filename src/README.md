@@ -1,4 +1,4 @@
-# Introduction
+
 
 In today's fast-paced world, being productive and achieving our goals has become more important than ever before. People are constantly seeking ways to improve their productivity and efficiency, but with so much information available, it can be hard to know where to start.
 
@@ -11,3 +11,7 @@ Through this book, you'll learn how to identify your priorities, break down task
 With the help of this book, you'll be able to create a culture of efficiency and effectiveness in your personal and professional life, leading to greater satisfaction, fulfillment, and success. So let's get started on the journey from list maker to winner!
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng

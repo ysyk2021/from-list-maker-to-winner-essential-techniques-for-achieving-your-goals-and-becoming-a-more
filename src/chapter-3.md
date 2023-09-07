@@ -1,5 +1,3 @@
-Chapter 2: Setting Effective Goals
-==================================
 
 In this chapter, we'll explore the importance of setting effective goals and techniques for doing so. By establishing clear, actionable goals that align with personal values and priorities, individuals can achieve greater success and become a more productive you.
 

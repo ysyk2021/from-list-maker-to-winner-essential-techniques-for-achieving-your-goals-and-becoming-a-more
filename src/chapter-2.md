@@ -1,5 +1,3 @@
-Chapter 1: Understanding the Power of Goal Setting
-==================================================
 
 In this chapter, we'll explore the power of goal setting and its importance in achieving success. We'll discuss the theory behind goal setting, the components of effective goal setting, developing self-awareness as a goal setter, and building trust in the process of achieving your goals.
 
