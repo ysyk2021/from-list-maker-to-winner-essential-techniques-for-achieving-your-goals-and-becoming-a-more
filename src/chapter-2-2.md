@@ -1,5 +1,4 @@
-Chapter 6: Identifying Different Components of Effective Goal Setting
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective goal setting is a multifaceted process that requires careful consideration of various components. In this chapter, we will explore the key elements of successful goal setting and how they contribute to achieving desired outcomes.
 

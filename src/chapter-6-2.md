@@ -1,5 +1,4 @@
-Chapter 5: Techniques for Building Lasting Habits
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques for building lasting habits that can help you achieve your goals and become a more productive version of yourself. Building habits is essential because they automate actions, conserve willpower, and provide consistency in your journey towards success. We will discuss various techniques and strategies to help you establish and sustain habits effectively.
 

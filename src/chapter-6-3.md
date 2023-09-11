@@ -1,5 +1,4 @@
-Chapter 4: Developing Routines That Align with Your Goals
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of developing routines that align with your goals. Establishing effective routines plays a crucial role in increasing productivity, maintaining focus, and achieving long-term success. By incorporating routines into your daily life that are specifically tailored to your goals, you can enhance your efficiency, develop positive habits, and make progress towards your objectives.
 

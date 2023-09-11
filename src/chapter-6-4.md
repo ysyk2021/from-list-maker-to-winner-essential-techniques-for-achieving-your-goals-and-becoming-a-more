@@ -1,5 +1,4 @@
-Chapter 8: Building a Culture of Consistency and Accountability
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore how to build a culture of consistency and accountability. Creating a culture of consistency and accountability can help you achieve your goals and become a more productive you. By following the strategies outlined in this chapter, you can motivate yourself and others to stay on track and achieve their objectives.
 

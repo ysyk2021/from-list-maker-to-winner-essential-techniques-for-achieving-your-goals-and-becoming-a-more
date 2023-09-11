@@ -1,5 +1,4 @@
-Chapter 9: Building a Clear Understanding of Your Personal Values, Priorities, and Vision
-=========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In order to achieve your goals and become a more productive individual, it is crucial to have a clear understanding of your personal values, priorities, and vision. This chapter will guide you through the process of identifying and aligning these key aspects, enabling you to make informed decisions and take purposeful actions towards success.
 

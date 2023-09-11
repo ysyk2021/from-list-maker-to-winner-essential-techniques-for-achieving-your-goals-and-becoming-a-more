@@ -1,5 +1,4 @@
-Chapter 5: Developing Routines and Habits That Support Productivity
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of developing routines and habits that support productivity. Routines and habits are powerful tools that can significantly enhance your ability to stay focused, maintain consistency, and achieve your goals. By understanding how to cultivate productive routines and habits, you can unleash your full potential and become a more efficient and successful version of yourself.
 

@@ -1,5 +1,4 @@
-Chapter 10: Developing Self-Awareness as a Goal Setter
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of developing self-awareness as a goal setter. Self-awareness plays a critical role in setting and achieving goals effectively. By understanding ourselves better, we can align our goals with our values, strengths, and areas for growth, ultimately becoming more productive and successful.
 

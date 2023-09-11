@@ -1,5 +1,4 @@
-Chapter 8: The Importance of Mindset and Self-Motivation in Achieving Your Goals
-================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the journey towards achieving your goals and becoming a more productive individual, having the right mindset and self-motivation are essential. This chapter will explore the significance of cultivating a positive mindset and developing self-motivation as key factors for success.
 

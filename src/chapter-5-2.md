@@ -1,5 +1,4 @@
-Chapter 9: Techniques for Addressing Procrastination and Distractions
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Procrastination and distractions can hinder your progress and prevent you from achieving your goals. In this chapter, we will explore effective techniques for addressing and overcoming procrastination and distractions, allowing you to enhance your productivity and stay focused on your path to success.
 

@@ -1,5 +1,4 @@
-Chapter: Techniques for Setting SMART Goals
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques for setting SMART goals that will help you achieve your objectives and become a more productive version of yourself.
 

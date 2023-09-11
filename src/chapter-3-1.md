@@ -1,5 +1,4 @@
-Chapter: Recognizing the Importance of Setting Effective Goals in Achieving Your Objectives
-===========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of setting effective goals in achieving your objectives and becoming a more productive version of yourself. We will discuss the benefits of goal setting, techniques for setting effective goals, and strategies for staying motivated along the way.
 

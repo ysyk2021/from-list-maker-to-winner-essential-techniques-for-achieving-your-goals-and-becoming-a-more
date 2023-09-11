@@ -1,5 +1,4 @@
-Chapter 6: Building Trust in the Process of Achieving Your Goals
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of building trust in the process of achieving your goals. Trust is a fundamental element that fuels motivation, perseverance, and success. When you trust the process, you develop a mindset that empowers you to overcome obstacles, stay committed, and ultimately achieve your desired outcomes.
 

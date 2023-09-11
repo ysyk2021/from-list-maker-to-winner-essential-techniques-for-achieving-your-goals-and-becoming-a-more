@@ -1,5 +1,4 @@
-Chapter 9: Overview of Goal Setting Theory
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will provide an overview of goal setting theory. Understanding the principles and concepts behind goal setting theory can help you effectively set and achieve your goals, ultimately leading to increased productivity and personal growth.
 
